@@ -1,3 +1,4 @@
 - Dubtronic Font - License: Personal Use - https://www.fontsquirrel.com/fonts/Dubtronic
+- Linkin Park Font - License: Personal Use - https://www.dafont.com/linkin-park.font
 - Chester Singing - Fair Use -  https://www.hardwiredmagazine.com/members-of-korn-system-of-a-down-avenged-sevenfold-to-join-linkin-park-at-chester-bennington-tribute-concert/?lang=en
 - Linkin Park Logo - Fair Use - https://1000logos.net/linkin-park-logo/
